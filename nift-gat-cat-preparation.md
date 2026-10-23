@@ -1,5 +1,5 @@
 ## Understanding the NIFT GAT and CAT: Exam Pattern and Preparation Strategy
-![NIFT CAT and GAT preparation desk with sketchbook, study checklist and mock paper](/nift-gat-cat-preparation.jpg)
+![NIFT CAT and GAT preparation desk with sketchbook, study checklist and mock paper](/nift-gat-cat-preparation.md.jpeg)
 
 Every year, thousands of students dream of studying design or fashion at NIFT...
 Every year, thousands of students dream of studying design or fashion at NIFT. The entrance process can look confusing at first, because it has more than one test and each one checks a different skill. For B.Des, you need to clear the General Ability Test (GAT) and the Creative Ability Test (CAT), and then take a Situation Test. This guide explains the GAT and CAT pattern in simple words and shares a practical way to prepare. The NIFT 2027 exam is scheduled for 10 January 2027, so the time to plan is now.
